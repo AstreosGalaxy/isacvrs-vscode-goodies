@@ -1,0 +1,3 @@
+these are some old things i made before i rebranded. uhhh...
+
+go watch me on twitch, i go live every so often; https://twitch.tv/AstreosGalaxy
